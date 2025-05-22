@@ -4,6 +4,8 @@
 
 **Space Waves** is a **hyper-casual**, **arcade-style** game that launches players into an **epic space journey**. You control a glowing arrow navigating through narrow paths and shifting obstacles in a **neon-lit galaxy**. With **lightning-fast reflexes** and **unstoppable focus**, can you survive the waves and reach the end?
 
+## <a href="https://1kb.link/u7nZMx">👉 Click To Play Space Waves Unblocked NOW 👈</a>
+
 ---
 
 ### 💥 Why Space Waves is an Epic Choice
